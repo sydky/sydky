@@ -1,28 +1,33 @@
 <p align="center">
 $\color{#ffffff}{\textbf{✦ . 　⁺ 　 . ✦ .  　⁺ ✦ . 　⁺  . ✦ . 　⁺ 　 . ✦ .}}$ <br/> 
-$\color{#ffffff}{\textbf{' ಄ Hypnotize me too,}}$ <br/>
-$\color{#fffffff}{\textbf{With the words; 'good night'  ᶻ 𝗓 𐰁 }}$ <br/>
+<p align="center">
+$\color{#ffffff}{\textbf{' ಄ It's just common sense, }}$ <br/>
+$\color{#fffffff}{\textbf{You're gradually turning into a dog \~\  ૮( ˃ ꒳ ˂)ა🦴}}$ <br/>
+$\color{#fffffff}{\textbf{Everything about me becomes more lovable! ' }}$ <br/>
 
 <p align="center">
- $\color{#f5b942}{\textbf{any . ♡ M (˶˃ᆺ˂˶) ♡ . seasian . audhd bpd }}$ <br/>
+ $\color{#97c9f7}{\textbf{any . ♡ M (˶˃ᆺ˂˶) ♡ . seasian . audhd bpd }}$ <br/>
 <p align="center">  
  $\color{#ffffff}{\textbf{✦ . 　⁺ 　 . ✦ .  　⁺ ✦ . 　⁺  . ✦ . 　⁺ 　 . ✦ .}}$ <br/> 
  <p align="center">
-  $\color{#f5b942}{\textbf{i wub my friends vivi, mattie, caye (♡ˊ͈ ꒳ ˋ͈)}}$ <br/>
+  $\color{#97c9f7}{\textbf{i wub my friends vivi, mattie, caye (♡ˊ͈ ꒳ ˋ͈)}}$ <br/>
  $\color{#ffffff}{\textbf{sx/sp 594 LEFV IEI MoHiD[E]g sL[U]a/I/}}$ <br/>
 
  <p align="center">
  $\color{#ffffff}{\textbf{✦ . 　⁺ 　 . ✦ .  　⁺ ✦ . 　⁺  . ✦ . 　⁺ 　 . ✦ .}}$ <br/> 
 
  <p align="left">
- $\color{#ffffff}{\textbf{SONG RECOMMENDATION OF THE WEEK: LOVE'S VENUS, BIZXZERA}}$ <br/>
+ $\color{#ffffff}{\textbf{SONG RECOMMENDATION OF THE WEEK: DREAM KILLER, ZERA}}$ <br/>
 
  <p align="left">
- $\color{#feebff}{\textbf{' Hey, you want me?}}$ <br/>
- $\color{#fdc9ff}{\textbf{ I won’t give in — I’m sick of it,}}$ <br/>
- $\color{#f2abf5}{\textbf{Ah, but I crave a love so wild it makes my heart race '}}$ <br/>
+ $\color{#aba5d4}{\textbf{' Goodbye to warmth, in the trash bag}}$ <br/>
+ $\color{#9287d4}{\textbf{ Empty cigarette butts of a faint dream,}}$ <br/>
+ $\color{#786dbd}{\textbf{From today, nameless 01, no lines, }}$ <br/>
+ $${\color{#6a5eb5}\underline{\textbf{Winner of the Best Forced Smile Award '}}}$$
 
-https://github.com/user-attachments/assets/5a0502fe-4e67-40ed-ae3b-f5443d61b489
+https://github.com/user-attachments/assets/bac9fdd8-1aee-4ec1-ae52-d0da42515b5f
+
+
 
 
 
