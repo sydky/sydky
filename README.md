@@ -11,7 +11,7 @@ $\color{#fffffff}{\textbf{Everything about me becomes more lovable! ' }}$ <br/>
  $\color{#ffffff}{\textbf{✦ . 　⁺ 　 . ✦ .  　⁺ ✦ . 　⁺  . ✦ . 　⁺ 　 . ✦ .}}$ <br/> 
  <p align="center">
   $\color{#97c9f7}{\textbf{i wub my friends vivi, mattie, caye (♡ˊ͈ ꒳ ˋ͈)}}$ <br/>
- $\color{#ffffff}{\textbf{sx/sp 594 LEFV IEI MoHiD[E]g sL[U]a/I/}}$ <br/>
+ $\color{#ffffff}{\textbf{sx/sp 541 LEFV IEI MoHiD[E]g sL[U]a/I/}}$ <br/>
 
  <p align="center">
  $\color{#ffffff}{\textbf{✦ . 　⁺ 　 . ✦ .  　⁺ ✦ . 　⁺  . ✦ . 　⁺ 　 . ✦ .}}$ <br/> 
