@@ -6,7 +6,7 @@ $\color{#fffffff}{\textbf{You're gradually turning into a dog \~\  ૮( ˃ ꒳ �
 $\color{#fffffff}{\textbf{Everything about me becomes more lovable! ' }}$ <br/>
 
 <p align="center">
- $\color{#97c9f7}{\textbf{any . ♡ M (˶˃ᆺ˂˶) ♡ . seasian . audhd bpd }}$ <br/>
+ $\color{#97c9f7}{\textbf{any . ♡ Mika (˶˃ᆺ˂˶) ♡ . seasian . audhd bpd }}$ <br/>
 <p align="center">  
  $\color{#ffffff}{\textbf{✦ . 　⁺ 　 . ✦ .  　⁺ ✦ . 　⁺  . ✦ . 　⁺ 　 . ✦ .}}$ <br/> 
  <p align="center">
