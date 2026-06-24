@@ -1,5 +1,4 @@
-<p align="center">
-$\color{#ffffff}{\textbf{✦ . 　⁺ 　 . ✦ .  　⁺ ✦ . 　⁺  . ✦ . 　⁺ 　 . ✦ .}}$ <br/> 
+![](https://komarev.com/ghpvc/?username=sydky&color=blue&label=ଳ⋆｡˚visitors )
 <p align="center">
 $\color{#ffffff}{\textbf{' ಄ It's just common sense, }}$ <br/>
 $\color{#fffffff}{\textbf{You're gradually turning into a dog \~\  ૮( ˃ ꒳ ˂)ა🦴}}$ <br/>
