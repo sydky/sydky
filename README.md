@@ -1,9 +1,3 @@
-![](https://komarev.com/ghpvc/?username=sydky&color=blue&label=ଳ⋆｡˚visitors )
-<p align="center">
-$\color{#ffffff}{\textbf{' ಄ It's just common sense, }}$ <br/>
-$\color{#fffffff}{\textbf{You're gradually turning into a dog \~\  ૮( ˃ ꒳ ˂)ა🦴}}$ <br/>
-$\color{#fffffff}{\textbf{Everything about me becomes more lovable! ' }}$ <br/>
-
 <p align="center">
  $\color{#ffffff}{\textbf{✦ . 　⁺ 　 . ✦ .  　⁺ ✦ . 　⁺  . ✦ . 　⁺ 　 . ✦ .}}$ <br/> 
  <p align="center">
