@@ -1,3 +1,4 @@
+ ![](https://komarev.com/ghpvc/?username=sydky&color=blue&label=ଳ⋆｡˚visitors)
 <p align="center">
  $\color{#ffffff}{\textbf{✦ . 　⁺ 　 . ✦ .  　⁺ ✦ . 　⁺  . ✦ . 　⁺ 　 . ✦ .}}$ <br/> 
  <p align="center">
