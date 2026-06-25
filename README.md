@@ -5,14 +5,12 @@ $\color{#fffffff}{\textbf{You're gradually turning into a dog \~\  ૮( ˃ ꒳ �
 $\color{#fffffff}{\textbf{Everything about me becomes more lovable! ' }}$ <br/>
 
 <p align="center">
- $\color{#97c9f7}{\textbf{any . ♡ my lovey mimi (˶˃ᆺ˂˶) ♡ . seasian . qbpd }}$ <br/>
-<p align="center">  
  $\color{#ffffff}{\textbf{✦ . 　⁺ 　 . ✦ .  　⁺ ✦ . 　⁺  . ✦ . 　⁺ 　 . ✦ .}}$ <br/> 
  <p align="center">
   $\color{#97c9f7}{\textbf{i wub my friends vivi, mattie, caye (♡ˊ͈ ꒳ ˋ͈)}}$ <br/>
  $\color{#ffffff}{\textbf{sx/sp 541 LEFV IEI MoHiD[E]g sL[U]a/I/}}$ <br/>
  <p align="center">
-  <a href="https://rentry.co/dondont">boundaries</a> . <a href="">rentry (wip)</a> . <a href="https://kurunaoi.atabook.org/">atabook</a>  
+  <a href="https://rentry.co/dondont">boundaries</a> . <a href="https://rentry.co/freisoteric">rentry</a> . <a href="https://kurunaoi.atabook.org/">atabook</a>  
 </p>
 
  <p align="center">
