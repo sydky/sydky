@@ -4,7 +4,7 @@
 <p align="justify">
  $\color{#ffffff}{\textbf{═════════════════════════════}}$ <br/> 
 <p align="justify">
-  <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=ysqx9ng174sq8v6djqbiwvjqu&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false)](https://github.com/kittinan/spotify-github-profile" width="300" alt="">
+  <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=ysqx9ng174sq8v6djqbiwvjqu&cover_image=true&theme=default&show_offline=false&background_color=000000&interchange=false&profanity=false&hide_remaster=false&bar_color=ffffff&bar_color_cover=true" width="300" alt="">
 </p>
 <p align="justify">
  $\color{#ffffff}{\textbf{═════════════════════════════}}$ <br/> 
