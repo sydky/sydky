@@ -1,33 +1,35 @@
-<p align="center">
+<p align="justify">
   <img src="https://komarev.com/ghpvc/?username=sydky&abbreviated&color=blue&label=ଳ⋆｡˚visitors" width="100" alt="Image Description">
 </p>
-
-<p align="center">
+<p align="justify">
+ $\color{#ffffff}{\textbf{✦ . 　⁺ 　 . ✦ .  　⁺ ✦ . 　⁺  . ✦ . 　⁺ 　 . ✦ . 　⁺  . ✦ . 　⁺ 　 . ✦　⁺}}$ <br/> 
+<p align="justify">
   <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=ysqx9ng174sq8v6djqbiwvjqu&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false)](https://github.com/kittinan/spotify-github-profile" width="300" alt="">
 </p>
-<p align="center">
- $\color{#ffffff}{\textbf{✦ . 　⁺ 　 . ✦ .  　⁺ ✦ . 　⁺  . ✦ . 　⁺ 　 . ✦ .}}$ <br/> 
- <p align="center">
+<p align="justify">
+ $\color{#ffffff}{\textbf{✦ . 　⁺ 　 . ✦ .  　⁺ ✦ . 　⁺  . ✦ . 　⁺ 　 . ✦ . 　⁺  . ✦ . 　⁺ 　 . ✦　⁺}}$ <br/> 
+ <p align="justify">
  $\color{#ffffff}{\textbf{no dni but boundary breakers/parasocial}}$ <br/> 
  $\color{#ffffff}{\textbf{minecraft smp fans make me uncomfortable}}$ <br/> 
  $\color{#ffffff}{\textbf{minecraft arg shippers/yumes are okay 👍}}$ <br/> 
  $\color{#ffffff}{\textbf{i hide freely, write in my atabuk to be unhid}}$ <br/> 
-<p align="center">
- $\color{#ffffff}{\textbf{✦ . 　⁺ 　 . ✦ .  　⁺ ✦ . 　⁺  . ✦ . 　⁺ 　 . ✦ .}}$ <br/> 
- <p align="center">
+<p align="justify">
+ $\color{#ffffff}{\textbf{✦ . 　⁺ 　 . ✦ .  　⁺ ✦ . 　⁺  . ✦ . 　⁺ 　 . ✦ . 　⁺  . ✦ . 　⁺ 　 . ✦　⁺}}$ <br/> 
+ <p align="justify">
   $\color{#97c9f7}{\textbf{i wub my friends vivi, mattie, caye (♡ˊ͈ ꒳ ˋ͈)}}$ <br/>
  $\color{#ffffff}{\textbf{sx/sp 541 LEFV IEI MoHiD[E]g sL[U]a/I/}}$ <br/>
- <p align="center">
+ <p align="justify">
   <a href="https://rentry.co/dondont">boundaries</a> . <a href="https://rentry.co/freisoteric">rentry</a> . <a href="https://kurunaoi.atabook.org/">atabook</a>  
 </p>
 
- <p align="center">
- $\color{#ffffff}{\textbf{✦ . 　⁺ 　 . ✦ .  　⁺ ✦ . 　⁺  . ✦ . 　⁺ 　 . ✦ .}}$ <br/> 
+ <p align="justify">
+ $\color{#ffffff}{\textbf{✦ . 　⁺ 　 . ✦ .  　⁺ ✦ . 　⁺  . ✦ . 　⁺ 　 . ✦ . 　⁺  . ✦ . 　⁺ 　 . ✦　⁺}}$ <br/> 
 
- <p align="center">
- $\color{#ffffff}{\textbf{SONG RECOMMENDATION OF THE WEEK: DREAM KILLER, ZERA}}$ <br/>
+ <p align="justify">
+ $\color{#ffffff}{\textbf{SONG RECOMMENDATION OF THE WEEK:}}$ <br/>
+$\color{#ffffff}{\textbf{DREAM KILLER, ZERA}}$ <br/>
 
- <p align="center">
+ <p align="justify">
  $\color{#aba5d4}{\textbf{' Goodbye to warmth, in the trash bag}}$ <br/>
  $\color{#9287d4}{\textbf{ Empty cigarette butts of a faint dream,}}$ <br/>
  $\color{#786dbd}{\textbf{From today, nameless 01, no lines, }}$ <br/>
