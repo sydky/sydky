@@ -1,4 +1,12 @@
  ![](https://komarev.com/ghpvc/?username=sydky&color=blue&label=ଳ⋆｡˚visitors)
+
+<p align="center">
+ $\color{#ffffff}{\textbf{✦ . 　⁺ 　 . ✦ .  　⁺ ✦ . 　⁺  . ✦ . 　⁺ 　 . ✦ .}}$ <br/> 
+ <p align="center">
+ $\color{#ffffff}{\textbf{no dni but boundary breakers/parasocial}}$ <br/> 
+ $\color{#ffffff}{\textbf{minecraft smp fans make me uncomfortable}}$ <br/> 
+ $\color{#ffffff}{\textbf{minecraft arg shippers/yumes are okay 👍}}$ <br/> 
+ $\color{#ffffff}{\textbf{i hide freely, write in my atabuk to be unhid}}$ <br/> 
 <p align="center">
  $\color{#ffffff}{\textbf{✦ . 　⁺ 　 . ✦ .  　⁺ ✦ . 　⁺  . ✦ . 　⁺ 　 . ✦ .}}$ <br/> 
  <p align="center">
