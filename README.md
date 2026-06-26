@@ -11,12 +11,12 @@
  <p align="justify">
  $\color{#ffffff}{\textbf{no dni but boundary breakers/parasocial}}$ <br/> 
  $\color{#ffffff}{\textbf{minecraft smp fans make me uncomfortable}}$ <br/> 
- $\color{#ffffff}{\textbf{minecraft arg shippers/yumes are okay 👍}}$ <br/> 
+ $\color{#d46ace}{\textbf{minecraft arg shippers/yumes are okay 👍}}$ <br/> 
  $\color{#ffffff}{\textbf{i hide freely, write in my atabuk to be unhid}}$ <br/> 
 <p align="justify">
  $\color{#ffffff}{\textbf{═════════════════════════════}}$ <br/> 
  <p align="justify">
-  $\color{#97c9f7}{\textbf{i wub my friends vivi, mattie, caye (♡ˊ͈ ꒳ ˋ͈)}}$ <br/>
+  $\color{#d46ace}{\textbf{i wub my friends vivi, mattie, caye (♡ˊ͈ ꒳ ˋ͈)}}$ <br/>
  $\color{#ffffff}{\textbf{sx/sp 541 LEFV IEI MoHiD[E]g sL[U]a/I/}}$ <br/>
  <p align="justify">
   <a href="https://rentry.co/dondont">boundaries</a> . <a href="https://rentry.co/freisoteric">rentry</a> . <a href="https://kurunaoi.atabook.org/">atabook</a>  
