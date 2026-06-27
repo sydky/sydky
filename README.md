@@ -1,5 +1,5 @@
 <p align="justify">
-  <img src="https://komarev.com/ghpvc/?username=sydky&abbreviated&color=blue&label=ଳ⋆｡˚visitors" width="100" alt="Image Description">
+  <img src="https://komarev.com/ghpvc/?username=sydky&abbreviated&color=blue&label=visitors" width="100" alt="Image Description">
 </p>
 <p align="justify">
  $\color{#ffffff}{\textbf{═════════════════════════════}}$ <br/> 
