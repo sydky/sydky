@@ -1,5 +1,5 @@
 <p align="justify">
-  <img src="https://komarev.com/ghpvc/?username=sydky&abbreviated&color=blue&label=visitors" width="100" alt="Image Description">
+  <img src="https://komarev.com/ghpvc/?username=sydky&abbreviated&color=blue&label=visitors" width="83" alt="Image Description">
 </p>
 <p align="justify">
  $\color{#ffffff}{\textbf{═════════════════════════════}}$ <br/> 
@@ -16,7 +16,9 @@
 <p align="justify">
  $\color{#ffffff}{\textbf{═════════════════════════════}}$ <br/> 
  <p align="justify">
-  $\color{#d46ace}{\textbf{i wub my friends vivi, mattie, caye (♡ˊ͈ ꒳ ˋ͈)}}$ <br/>
+  <img src="https://files.catbox.moe/cz2v2o.PNG" width="700" alt="Image Description">
+</p>
+<p align="justify">
  $\color{#ffffff}{\textbf{sx/sp 541 LEFV IEI MoHiD[E]g sL[U]a/I/}}$ <br/>
  <p align="justify">
   <a href="https://rentry.co/dondont">boundaries</a> . <a href="https://rentry.co/freisoteric">rentry</a> . <a href="https://kurunaoi.atabook.org/">atabook</a>  
