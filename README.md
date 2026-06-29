@@ -19,7 +19,7 @@
   <img src="https://files.catbox.moe/cz2v2o.PNG" width="700" alt="Image Description">
 </p>
 <p align="justify">
- $\color{#ffffff}{\textbf{sx/sp 541 LEFV IEI MoHiD[E]g sL[U]a/I/}}$ <br/>
+ $\color{#ffffff}{\textbf{sx/sp 541 LEVF IEI AoHiD[E]g rL[U]a/I/}}$ <br/>
  <p align="justify">
   <a href="https://rentry.co/dondont">boundaries</a> . <a href="https://rentry.co/freisoteric">rentry</a> . <a href="https://kurunaoi.atabook.org/">atabook</a>  
 </p>
