@@ -16,7 +16,7 @@
 <p align="justify">
  $\color{#ffffff}{\textbf{═════════════════════════════}}$ <br/> 
  <p align="justify">
-  <img src="https://files.catbox.moe/cz2v2o.PNG" width="700" alt="Image Description">
+  <img src="https://cdn.discordapp.com/attachments/1521414789941956689/1521464610274934784/image.png?ex=6a44edd6&is=6a439c56&hm=85930a172dfc62527149666b77f50a3d396f9f10a4c3f2b51ae92ac12086df2e&.png" width="700" alt="Image Description">
 </p>
 <p align="justify">
  $\color{#ffffff}{\textbf{sx/sp 541 LEVF ILI AoHiD[E]g rL[U]a/I/}}$ <br/>
