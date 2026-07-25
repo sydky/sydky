@@ -19,7 +19,7 @@
   <img src="https://cdn.discordapp.com/attachments/1521414789941956689/1521464610274934784/image.png?ex=6a44edd6&is=6a439c56&hm=85930a172dfc62527149666b77f50a3d396f9f10a4c3f2b51ae92ac12086df2e&.png" width="700" alt="Image Description">
 </p>
 <p align="justify">
- $\color{#ffffff}{\textbf{INFJ 5w4 sx/sp 541 LVEF IEI AoHiD[E]g rL[U]a/I/}}$ <br/>
+ $\color{#ffffff}{\textbf{INTJ 5w4 sx/sp 549 LEVF EII AoHiD[E]g rL[U]a/I/}}$ <br/>
  <p align="justify">
   <a href="https://rentry.co/dondont">boundaries</a> . <a href="https://rentry.co/freisoteric">rentry</a> . <a href="https://kurunaoi.atabook.org/">atabook</a>  
 </p>
