@@ -21,7 +21,7 @@
 <p align="justify">
  $\color{#ffffff}{\textbf{INTJ 5w4 sx/sp 549 LEVF LII AoTw[D]Eg r[L]Oa/I/}}$ <br/>
  <p align="justify">
-  <a href="https://rentry.co/dondont">boundaries</a> . <a href="https://rentry.co/freisoteric">rentry</a> . <a href="https://kurunaoi.atabook.org/">atabook</a>  
+  <a href="https://rentry.co/dondont">boundaries</a> . <a href="https://rentry.co/freyscha">rentry</a> . <a href="https://kurunaoi.atabook.org/">atabook</a>  
 </p>
 
  <p align="justify">
